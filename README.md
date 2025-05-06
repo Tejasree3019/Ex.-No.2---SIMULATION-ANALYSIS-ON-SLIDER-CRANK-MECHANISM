@@ -41,7 +41,7 @@
 ![Screenshot 2025-04-22 103057](https://github.com/user-attachments/assets/27d6172f-3b2a-4f1a-8465-4ca4e0963aa8)
 
 
-### Name:Tejasree.K
+### Name:Tejasree K
 ### Register Number: 212224240168
 
 ## RESULT:
